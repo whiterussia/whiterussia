@@ -1,4 +1,4 @@
-<p align="center"><a href="https://belayarus.atabook.org/">Book.</a>
+<p align="center"><a href="https://belayarus.atabook.org/">Sign Book.</a>
 
 <p align="center">
   <img src="Lith.gif"/>
