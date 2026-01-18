@@ -4,25 +4,25 @@
 
 <details align="center"> 
 <summary>$\color{lightblue}{Click \space Me. \space (ㅍ-ㅍ)}$</summary>  
-ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 $\color{lightblue}{About \space Me.}$ 
 
-ꜢㅤAPH Belarus / Nyo Belarus Fictkin
+꒱ㅤAPH Belarus / Nyo Belarus Fictkin
 
-Ꜣㅤ16 years old (turning 17 this April)
+꒱ㅤ16 years old (turning 17 this April)
 
-ꜢㅤHe / She
+꒱ㅤHe / She
 
 $\color{lightblue}{Ponytown.}$ 
 
-ꜢㅤI rarely / never interact first unless you do, even if we are friends on this game
+꒱ㅤI rarely / never interact first unless you do, even if we are friends on this game
 
-ꜢㅤI only encourage C + H if we are in the same fandom
+꒱ㅤI only encourage C + H if we are in the same fandom
 
- ᛝ ───── ⑅ ♡ ⑅ ───── ᛝ
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
-**⩊ [Sign Book](https://belayarus.atabook.org/)** $\color{lightblue}{ 𖥠 }$ **[Last.fm](https://www.last.fm/user/maplehaven/) ⩊**
+**ᛝ [Sign Book](https://belayarus.atabook.org/)** $\color{lightblue}{ 𖥠 }$ **[Last.fm](https://www.last.fm/user/maplehaven/) ᛝ**
 
 <p align="center">
   <img src="Lith.gif"/>
