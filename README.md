@@ -22,6 +22,19 @@ $\color{lightblue}{Ponytown.}$
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
+$\color{lightblue}{Favourites. :)}$ 
+
+꒱ㅤSoviet Siblings
+
+꒱ㅤSerbia (Canon, even if there is barely content of him and Yugotalia)
+
+꒱ㅤEngland
+
+꒱ㅤCanada
+
+꒱ㅤSwitzerland
+
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
 **ᛝ [Sign Book](https://belayarus.atabook.org/)** $\color{lightblue}{ 𖥠 }$ **[Last.fm](https://www.last.fm/user/maplehaven/) ᛝ**
