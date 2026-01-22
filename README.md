@@ -1,5 +1,5 @@
 <p align="center">
-<img width="514" height="412" alt="image" src="https://github.com/user-attachments/assets/58c54038-7bfc-4ee5-8b16-f24f5a28739a" />
+<img src="suckonhisballspeasant.jpg"/>
 </p>
 
 <details align="center"> 
