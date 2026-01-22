@@ -22,7 +22,7 @@ $\color{lightblue}{Ponytown.}$
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
-$\color{lightblue}{Favourites. :)}$ 
+$\color{lightblue}{Favourites :)}$ 
 
 ꒱ㅤSoviet Siblings
 
