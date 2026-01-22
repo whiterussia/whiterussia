@@ -22,17 +22,17 @@ $\color{lightblue}{Ponytown.}$
 
 ꒱ㅤI only encourage C + H if we are in the same fandom
 
-$\color{lightblue}{Favourites :)}$ 
+$\color{lightblue}{Favourites /space :)}$ 
 
-꒱ㅤSoviet Siblings
+꒱ㅤRussia, Belarus and Ukraine (The actual countries itself, Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤSerbia (Canon, even if there is barely content of him and Yugotalia)
+꒱ㅤSerbia (Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤEngland
+꒱ㅤEngland (Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤCanada
+꒱ㅤCanada (Countryballs, Countryhumans and Hetalia)
 
-꒱ㅤSwitzerland
+꒱ㅤSwitzerland (Countryballs, Countryhumans and Hetalia)
 
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
